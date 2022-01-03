@@ -6,6 +6,6 @@ creditos: reapere#4127 y tl leaks
 
 Recordatorio leer el README.md
 
-Descarga: https://www.mediafire.com/folder/skv0zvt7jwg75/[TL_CNP_Job]+TL+LEAKS 💗
+Descarga: https://drive.google.com/drive/folders/1H-QXO93jFVpoH7AjqRSjR-XEc9lm1ve8?usp=sharing 💗
 
 https://discord.gg/4t4dTDGjQK
